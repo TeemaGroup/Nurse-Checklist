@@ -4,7 +4,7 @@ Operating Room RN Skills Checklist for employment as a Healthcare Professional. 
 
 L&D – Labor and Delivery Nurse Skills Checklist. Rate your skills and authorize the Company to release this Skills for employment as a Healthcare Professional. <a href="https://teemagroup.com/nurse-checklist/l-and-d/">Labor and delivery nurse skills checklist</a>
 
-<a href="https://teemagroup.com/nurse-checklist/surgical-technician/">Surgical tech skills checklist</> - Surgical Tech Skills Checklist. Rate your skills and authorize the Company to release this Skills for employment as a Healthcare Professional.
+<a href="https://teemagroup.com/nurse-checklist/surgical-technician/">Surgical tech skills checklist</a> - Surgical Tech Skills Checklist. Rate your skills and authorize the Company to release this Skills for employment as a Healthcare Professional.
 
 <a href="https://teemagroup.com/nurse-checklist/cm-checklist-for-onboarding-new-healthcare-clients/">Healthcare onboarding checklist</a> - CM Checklist for Onboarding New Healthcare Clients. Fill up the form and authorize the Company to release these Skills for employment as a Healthcare Professional.
 
